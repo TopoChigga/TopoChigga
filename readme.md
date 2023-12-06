@@ -7,4 +7,4 @@
 
 ---
 
-**Note:** The pictures are not to be distributed.
+**Note:** The GIF's are not for distribution.
