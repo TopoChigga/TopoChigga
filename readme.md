@@ -4,3 +4,7 @@
   <img src="https://github.com/TopoChigga/profile/blob/main/page0.JPG" alt="Takeoff with data" width="400"/>
   <img src="https://github.com/TopoChigga/profile/blob/main/myFile12-5-2023_25539_PM.gif" alt="Others" width="400"/>
 </div>
+
+---
+
+**Note:** The pictures are not to be distributed.
