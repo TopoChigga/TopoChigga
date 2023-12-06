@@ -7,4 +7,4 @@
 
 ---
 
-**Note:** The GIF's are not for distribution.
+**Notice:** The GIF's are not for distribution. Contact wang.career.holdings@gmail.com for assistance.
